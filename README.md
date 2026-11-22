@@ -21,7 +21,7 @@ Hi, I'm Chaitra Goudar, pursuing Electronics & communication engineering. passio
 
 ## 🤝 Connect With Me
 Linkdin: Chaitra goudar
-Linkdin url: https://www.linkedin.com/in/chaitra-goudar-707730385?utm_source=share_via&utm_content=profile&utm_medium=member_android
+(Linkdin url) https://www.linkedin.com/in/chaitra-goudar-707730385?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
 ## 🌱 Note
 Growing through curiosity, learning through projects, and building with purpose.
