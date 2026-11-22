@@ -20,6 +20,7 @@ Hi, I'm Chaitra Goudar, pursuing Electronics & communication engineering. passio
 - Strengthen my fundamentals, turn ideas into practical projects, and keep learning, building, and sharing along the way.
 
 ## 🤝 Connect With Me
+Chaitra goudar
 https://www.linkedin.com/in/chaitra-goudar-707730385?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
 ## 🌱 Note
